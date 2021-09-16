@@ -4,4 +4,4 @@
 
 ## 📫 How to reach me: 
 - Email: Maks_Sannikov@bk.ru
-- Telegram: @MaksimSannikov1 
+- Telegram: @MaksimSann
